@@ -1,1 +1,2 @@
-# savior-of-divine-blood-draw-out-0-00000001-to-become-the-strongest
+# Savior of Divine Blood ~Draw Out 0.00000001% To Become the Strongest
+Un joueur capable de combattre des créatures provenant des merveilles d’un autre monde. Le protagoniste principal, Ariake Subaru, était victime de harcèlement et a été choisi en tant que joueur du rang « Arc-en-ciel », qui n’est ni or, ni argent, ni cuivre. Il a acquis la compétence de manipuler librement le sang, et sa vie et sa position ont totalement changé. Alors qu’il continue de se battre chaque jour, il gagne peu à peu le titre de « Sauveur » qui sauvera le monde.
